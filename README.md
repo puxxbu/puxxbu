@@ -1,4 +1,6 @@
-### Hi there 👋
+### mata pening otak pening
+![lucyheker](https://user-images.githubusercontent.com/61315456/190142390-20df22ea-23f1-4700-a7df-7fdd3529dc2b.gif)
+
 
 <!--
 **puxxbu/puxxbu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -1,5 +1,6 @@
-### mata pening otak pening
-![lucyheker](https://user-images.githubusercontent.com/61315456/190142390-20df22ea-23f1-4700-a7df-7fdd3529dc2b.gif)
+### siap gerak
+
+![original](https://user-images.githubusercontent.com/61315456/207668421-594fa0d0-aabf-41bc-8bf8-99aea5549a02.gif)
 
 
 <!--

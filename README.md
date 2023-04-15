@@ -1,6 +1,6 @@
 ### siap gerak
 
-![original](https://user-images.githubusercontent.com/61315456/207668421-594fa0d0-aabf-41bc-8bf8-99aea5549a02.gif)
+![original](https://media.tenor.com/n3dRjZoWEE8AAAAC/lag-train.gif)
 
 
 <!--

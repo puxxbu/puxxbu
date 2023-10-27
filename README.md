@@ -1,6 +1,6 @@
-### siap gerak
+### Pikiran stuck
 
-![original](https://media.tenor.com/n3dRjZoWEE8AAAAC/lag-train.gif)
+![original](https://tenor.com/view/frieren-sousou-no-frieren-mimic-stuck-monster-gif-9774470907620230777)
 
 
 <!--

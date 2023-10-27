@@ -1,6 +1,6 @@
 ### Pikiran stuck
 
-![original](https://tenor.com/view/frieren-sousou-no-frieren-mimic-stuck-monster-gif-9774470907620230777)
+![original](https://media.tenor.com/h6XlgMwYBnkAAAAd/frieren-sousou-no-frieren.gif)
 
 
 <!--
